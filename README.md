@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lakomutu
+- 👀 I’m interested in new things.
+- 🌱 I’m currently learning everything.
+- 📫 How to reach me:email
